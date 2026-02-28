@@ -1,1 +1,1 @@
-KAPALI
+kapali
